@@ -13,4 +13,4 @@ We do not knowingly collect any personal information from children under the age
 We may update our Privacy Policy from time to time. Any changes will be posted on this page. We encourage you to review this policy periodically.
 6. Contact Us
 If you have any questions or concerns about this Privacy Policy, please contact us at:
-ümitpakdemir2@gmail.com
+ ümitpakdemir2@gmail.com
